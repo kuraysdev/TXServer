@@ -19,7 +19,6 @@ We've known each other for so long
 Your heart's been aching but you're too shy to say it
 Inside we both know what's been going on
 We know the game and we're gonna play it
-Источник teksty-pesenok.ru
 
 And if you ask me how I'm feeling
 Don't tell me you're too blind to see
